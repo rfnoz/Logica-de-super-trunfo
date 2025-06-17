@@ -1,1 +1,1 @@
-"# Logica-de-super-trunfo" 
+"# Cartas-super-trunfo" 
