@@ -1,0 +1,1 @@
+"# Logica-de-super-trunfo" 
